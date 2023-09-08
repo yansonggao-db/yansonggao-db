@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @yansonggao-db
-- 🌱 I’m currently learning 🎾 and ⛳️
+- 🌱 I play ⚽️ year around, and am currently learning 🎾 and ⛳️
 
 <!---
 yansonggao-db/yansonggao-db is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
